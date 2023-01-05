@@ -10,7 +10,7 @@
 ---------------------------------------
 
 ### Contact
-[telegram](https://t.me/temp992/)
+[Telegram](https://t.me/temp992/)
 
 
 > **Warning**
