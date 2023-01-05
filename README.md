@@ -9,13 +9,8 @@
 * Detects Dead .Session Files
 ---------------------------------------
 
-### Price
-The price is $45USD for full access to the program
-
----------------------------------------
-
 ### Contact
-If you want to buy message me on [telegram](https://t.me/temp992/)
+[telegram](https://t.me/temp992/)
 
 
 > **Warning**
